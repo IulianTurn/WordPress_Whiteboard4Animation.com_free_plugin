@@ -1,1 +1,1 @@
-Bring life to your website with amazing whiteboard animations.
+Bring life to your website with amazing whiteboard animations. Premium version and live examples on whiteboard4animations.com
